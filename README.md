@@ -1,3 +1,2 @@
 # Sample_TextHAHA
-Generic_Statement
-NYHAHHÎAHAHAHAHFHAFHAFUAHSFIUAHFADUIFBDUIBFDSIUFB
+Generic_Statement->Generic Entry
