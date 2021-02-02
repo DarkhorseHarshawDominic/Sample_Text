@@ -1,2 +1,2 @@
 # Sample_TextHAHA
-Generic_Statement->Generic Entry
+I'm IN HELL
